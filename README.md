@@ -7,4 +7,4 @@ pleeasepleaseplease visit my strawpage.. pawing at you
 
 more often then not i'm typically offtab on chicken smoothie instead, my @ is dogthing_🐶🐾
 
-[img]https://i.pinimg.com/736x/bb/9d/6c/bb9d6ca3a39ff48966adbfae77e2d988.jpg[/img]
+https://i.pinimg.com/736x/bb/9d/6c/bb9d6ca3a39ff48966adbfae77e2d988.jpg
