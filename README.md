@@ -1,6 +1,6 @@
 <img width="1200" height="675" alt="a93571355dcaa9b56a36b82c0b14d81a" src="https://github.com/user-attachments/assets/7c819d0a-acd5-4b8c-9854-0093e920883b" />
 
-‿̩͙‿ ༺ 𓃗 ༻ ‿̩͙‿
+‿̩͙‿ ༺ 🐾 ༻ ‿̩͙‿
 
 I love my wife oh so very much.. i yearn for her like a soldier at war
 
