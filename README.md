@@ -1,4 +1,5 @@
-[img]https://i.pinimg.com/1200x/a9/35/71/a93571355dcaa9b56a36b82c0b14d81a.jpg[/img]
+https://i.pinimg.com/1200x/a9/35/71/a93571355dcaa9b56a36b82c0b14d81a.jpg
+
 ‿̩͙‿ ༺ 𓃗 ༻ ‿̩͙‿
 
 I love my wife oh so very much.. i yearn for her like a soldier at war
